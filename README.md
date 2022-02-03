@@ -1,4 +1,0 @@
-# clase
-# clase
-# clase
-# clase
